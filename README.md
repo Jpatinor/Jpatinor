@@ -1,4 +1,5 @@
-## Hi there 👋
+hello!
+Im currently a student at ASU studying to be a UX Designer. 
 
 <!--
 **Jpatinor/Jpatinor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
