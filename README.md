@@ -1,5 +1,6 @@
-hello!
-Im currently a student at ASU studying to be a UX Designer. 
+🎓 UX Design Student | 🎨 Creative Thinker | ✨ Always Curious
+
+Hey there! I’m currently diving deep into the world of UX design—learning how to make digital experiences more intuitive, accessible, and human. Outside of my studies, I enjoy creative hobbies like illustration, crafting, and anything that lets me bring ideas to life. I’m all about blending design thinking with a creative spark!
 
 <!--
 **Jpatinor/Jpatinor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
