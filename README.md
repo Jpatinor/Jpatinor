@@ -4,6 +4,8 @@ Hey there! I’m currently diving deep into the world of UX design—learning ho
 
 My Behance Profile: https://www.behance.net/jackiepatino
 
+![amelie-mourichon-sv8oOQaUb-o-unsplash](https://github.com/user-attachments/assets/6a779485-ea94-4c3e-84d8-3131d29bfc9e)
+
 <!--
 **Jpatinor/Jpatinor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
