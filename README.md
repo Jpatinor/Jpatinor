@@ -1,6 +1,6 @@
-🎓 UX Design Student | 🎨 Creative Thinker | ✨ Always Curious
+🎓 **UX Design Student** | 🎨 **Creative Thinker** | ✨ **Always Curious**
 
-Hey there! I’m currently diving deep into the world of UX design—learning how to make digital experiences more intuitive, accessible, and human. Outside of my studies, I enjoy creative hobbies like illustration, crafting, and anything that lets me bring ideas to life. I’m all about blending design thinking with a creative spark!
+Hey there! *Jackie here*, I’m currently diving deep into the world of UX design—learning how to make digital experiences more intuitive, accessible, and human. Outside of my studies, I enjoy creative hobbies like illustration, crafting, and anything that lets me bring ideas to life. I’m all about blending design thinking with a creative spark!
 
 My Behance Profile: https://www.behance.net/jackiepatino
 
