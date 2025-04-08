@@ -2,6 +2,8 @@
 
 Hey there! I’m currently diving deep into the world of UX design—learning how to make digital experiences more intuitive, accessible, and human. Outside of my studies, I enjoy creative hobbies like illustration, crafting, and anything that lets me bring ideas to life. I’m all about blending design thinking with a creative spark!
 
+My Behance Profile: https://www.behance.net/jackiepatino
+
 <!--
 **Jpatinor/Jpatinor** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
