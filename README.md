@@ -2,7 +2,7 @@
 
 Hey there! *Jackie here*, I’m currently diving deep into the world of UX design—learning how to make digital experiences more intuitive, accessible, and human. Outside of my studies, I enjoy creative hobbies like illustration, crafting, and anything that lets me bring ideas to life. I’m all about blending design thinking with a creative spark!
 
-My Behance Profile: https://www.behance.net/jackiepatino
+☁️ My Behance Profile: https://www.behance.net/jackiepatino
 
 ![amelie-mourichon-sv8oOQaUb-o-unsplash](https://github.com/user-attachments/assets/6a779485-ea94-4c3e-84d8-3131d29bfc9e)
 
